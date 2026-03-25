@@ -1,0 +1,1 @@
+# 2026-VK-EDU-ITProject-Management-12-Voronkov-A
